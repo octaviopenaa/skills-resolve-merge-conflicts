@@ -1,0 +1,1 @@
+por que yo soy de boca y quiero la camiseta, la doce vino re loca, y quiere dar otra vuelta. para salir primero hay q poner mas huuuuevoooo hueeevoooooo matar una gallina y a racing de tercero tercerooo
